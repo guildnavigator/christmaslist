@@ -1,8 +1,7 @@
-## Welcome to GitHub Pages
+## Merry Christmas
 
-You can use the [editor on GitHub](https://github.com/guildnavigator/christmaslist/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+[Better Horn](https://www.amazon.com/FIAMM-72112-Freeway-Blaster-Note/dp/B000DINKPQ)
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
 ### Markdown
 
