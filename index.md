@@ -9,5 +9,6 @@
 [Headlight Protector $56.56](https://www.amazon.com/Motorcycle-Headlight-Accessories-Protector-2010-2019/dp/B09DW2DZWT/)  
 [Throttle Lock Cruise Control $18.95](https://www.amazon.com/Go-Cruise-Stress-Throttle-Handlebars/dp/B004VROJ32/)  
 [Helmet Lock & Cable $17.09](https://www.amazon.com/dp/B071HKZSST)  
+[Windsheild Bracket with GPS mount $169.95](https://touratech-usa.com/Store/Windshield-Adjustment-Bracket-with-GPS-Mounting-Bar-Yamaha-XT1200Z-Super-Tenere-up-to-2013)
 
 [Mikef5000 Accessories](http://www.mikef5000.com/2012-yamaha-super-tenere-the-second.html)  
