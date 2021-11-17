@@ -12,3 +12,6 @@
 [Windsheild Bracket with GPS mount $169.95](https://touratech-usa.com/Store/Windshield-Adjustment-Bracket-with-GPS-Mounting-Bar-Yamaha-XT1200Z-Super-Tenere-up-to-2013)
 
 [Mikef5000 Accessories](http://www.mikef5000.com/2012-yamaha-super-tenere-the-second.html)  
+
+## Other stuff
+[Shower speaker with radio and presets](https://www.amazon.com/dp/B07Y5PQYR3)
