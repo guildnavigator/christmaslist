@@ -1,4 +1,5 @@
 ## Merry Christmas!
+Doesn't have to come from this list! I like surprises too.
 
 ## Motorcyle stuff  
 
@@ -34,3 +35,5 @@
 [Mountain bike repair tool](https://www.amazon.com/dp/B08KPYBKJ8?th=1)  
 [Nivea after shave balm](https://www.target.com/p/nivea-men-sensitive-post-shave-balm-3-3-fl-oz/-/A-11031116?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tmnv&DFA=71700000086758999&CPNG=PLA_DVM%2Ba064R000011u0ylQAA+-+NIVEA_Google_Always+On_Sept_2021_Flight&adgroup=PLA_NIVEA&LID=700000001393753pgs&network=g&device=c&location=9023261&gclid=EAIaIQobChMIjtCPoZW09AIVUys4Ch28Dw3VEAQYASABEgLU-vD_BwE&gclsrc=aw.ds)  
 White Hanes t-shirts size XL
+Cool leather or handmade bracelet
+Anything hand-made!
