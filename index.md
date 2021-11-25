@@ -34,6 +34,8 @@ Doesn't have to come from this list! I like surprises too.
 [Pillow - must be Fieldcrest King Size Down Filled](https://www.jcpenney.com/p/fieldcrest-luxury-jacquard-medium-density-antimicrobial-down-pillow/ppr5008065685?pTmplType=regular&deptId=dept20000012&catId=cat1009830001&urlState=%2Fg%2Fbed-bath%2Fview-all-basic-bedding%3Fbrand%3Dfieldcrest%26pillow_product_size%3Dking%26id%3Dcat1009830001&productGridView=medium&badge=fewleft&cm_re=ZB-_-GALLERY-FIELDCREST-_-VN-_-FIELDCRESTPLP-CASUAL-_-BEDDING-ESSENTIALS_2)  
 [Mountain bike repair tool](https://www.amazon.com/dp/B08KPYBKJ8?th=1)  
 [Nivea after shave balm](https://www.target.com/p/nivea-men-sensitive-post-shave-balm-3-3-fl-oz/-/A-11031116?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tmnv&DFA=71700000086758999&CPNG=PLA_DVM%2Ba064R000011u0ylQAA+-+NIVEA_Google_Always+On_Sept_2021_Flight&adgroup=PLA_NIVEA&LID=700000001393753pgs&network=g&device=c&location=9023261&gclid=EAIaIQobChMIjtCPoZW09AIVUys4Ch28Dw3VEAQYASABEgLU-vD_BwE&gclsrc=aw.ds)  
+
+## Other ideaa not links  
 White Hanes t-shirts size XL  
 Cool leather or handmade bracelet  
 Anything hand-made!  
