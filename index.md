@@ -19,17 +19,18 @@
 [Motprcycle shoes size 11 $89](https://www.amazon.com/IRON-JIAS-Motorcycle-Streetbike-Accessories/dp/B074WYCTRW/?th=1)
 
 # Home Depot
-[Bucket Head shop vac $29.97](https://www.homedepot.com/p/Bucket-Head-5-Gal-1-75-Peak-HP-Wet-Dry-Shop-Vacuum-Powerhead-with-Filter-Bag-and-Hose-compatible-with-5-Gal-Homer-Bucket-BH0100/202017218#overlay)
-[Battery chemical sprayer $62.97](https://www.homedepot.com/p/RYOBI-ONE-18V-Cordless-Battery-2-Gal-Chemical-Sprayer-Tool-Only-P2803BTL/316524855#overlay)
-[Folding work platform on-sale $34.88 don't get if not on sale](https://www.homedepot.com/p/Gorilla-Ladders-47-25-in-x-12-in-x-20-in-Aluminum-Slim-Fold-Work-Platform-300-lbs-Load-Capacity-GLWP-47/305590237)
+[Bucket Head shop vac $29.97](https://www.homedepot.com/p/Bucket-Head-5-Gal-1-75-Peak-HP-Wet-Dry-Shop-Vacuum-Powerhead-with-Filter-Bag-and-Hose-compatible-with-5-Gal-Homer-Bucket-BH0100/202017218#overlay)  
+[Battery chemical sprayer $62.97](https://www.homedepot.com/p/RYOBI-ONE-18V-Cordless-Battery-2-Gal-Chemical-Sprayer-Tool-Only-P2803BTL/316524855#overlay)  
+[Folding work platform on-sale $34.88 don't get if not on sale](https://www.homedepot.com/p/Gorilla-Ladders-47-25-in-x-12-in-x-20-in-Aluminum-Slim-Fold-Work-Platform-300-lbs-Load-Capacity-GLWP-47/305590237)  
 
 # Harbor Freight
-[Propane Torch with Igniter](https://www.harborfreight.com/propane-torch-with-push-button-igniter-91037.html)
-[Propane level guage (use for Generator)](https://www.harborfreight.com/propane-level-gauge-66940.html)
+[Propane Torch with Igniter](https://www.harborfreight.com/propane-torch-with-push-button-igniter-91037.html)  
+[Propane level guage (use for Generator)](https://www.harborfreight.com/propane-level-gauge-66940.html)  
 
 ## Other stuff
-[Trackball Mouse ergonomic $93.82](https://www.amazon.com/dp/B0753P1GTS?th=1)
-[Shower speaker with radio and presets](https://www.amazon.com/dp/B07Y5PQYR3)
-[Pillow - must be Fieldcrest King Size Down Filled](https://www.jcpenney.com/p/fieldcrest-luxury-jacquard-medium-density-antimicrobial-down-pillow/ppr5008065685?pTmplType=regular&deptId=dept20000012&catId=cat1009830001&urlState=%2Fg%2Fbed-bath%2Fview-all-basic-bedding%3Fbrand%3Dfieldcrest%26pillow_product_size%3Dking%26id%3Dcat1009830001&productGridView=medium&badge=fewleft&cm_re=ZB-_-GALLERY-FIELDCREST-_-VN-_-FIELDCRESTPLP-CASUAL-_-BEDDING-ESSENTIALS_2)
-[Nivea after shave balm](https://www.target.com/p/nivea-men-sensitive-post-shave-balm-3-3-fl-oz/-/A-11031116?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tmnv&DFA=71700000086758999&CPNG=PLA_DVM%2Ba064R000011u0ylQAA+-+NIVEA_Google_Always+On_Sept_2021_Flight&adgroup=PLA_NIVEA&LID=700000001393753pgs&network=g&device=c&location=9023261&gclid=EAIaIQobChMIjtCPoZW09AIVUys4Ch28Dw3VEAQYASABEgLU-vD_BwE&gclsrc=aw.ds)
+[Trackball Mouse ergonomic $93.82](https://www.amazon.com/dp/B0753P1GTS?th=1)  
+[Shower speaker with radio and presets](https://www.amazon.com/dp/B07Y5PQYR3)  
+[Pillow - must be Fieldcrest King Size Down Filled](https://www.jcpenney.com/p/fieldcrest-luxury-jacquard-medium-density-antimicrobial-down-pillow/ppr5008065685?pTmplType=regular&deptId=dept20000012&catId=cat1009830001&urlState=%2Fg%2Fbed-bath%2Fview-all-basic-bedding%3Fbrand%3Dfieldcrest%26pillow_product_size%3Dking%26id%3Dcat1009830001&productGridView=medium&badge=fewleft&cm_re=ZB-_-GALLERY-FIELDCREST-_-VN-_-FIELDCRESTPLP-CASUAL-_-BEDDING-ESSENTIALS_2)  
+[Mountain bike repair tool](https://www.amazon.com/dp/B08KPYBKJ8?th=1)  
+[Nivea after shave balm](https://www.target.com/p/nivea-men-sensitive-post-shave-balm-3-3-fl-oz/-/A-11031116?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tmnv&DFA=71700000086758999&CPNG=PLA_DVM%2Ba064R000011u0ylQAA+-+NIVEA_Google_Always+On_Sept_2021_Flight&adgroup=PLA_NIVEA&LID=700000001393753pgs&network=g&device=c&location=9023261&gclid=EAIaIQobChMIjtCPoZW09AIVUys4Ch28Dw3VEAQYASABEgLU-vD_BwE&gclsrc=aw.ds)  
 White Hanes t-shirts size XL
