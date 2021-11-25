@@ -14,9 +14,9 @@
 [Motorcycle Pants Hi Visible (36Wx32L) $59.99](https://www.amazon.com/HWK-Motorcycle-Pants-Waterproof-All-Purpose/dp/B0821C2PBK/?th=1&psc=1)  
 [Winter Gloves $31.99 size XL any color](https://www.amazon.com/dp/B07JYWKF75/?th=1)  
 [Heated grips - Adventure style $89.95](https://www.amazon.com/Oxford-Heaterz-Grips-EL690Z-Adventure/dp/B07K7SLSPB/)  
-[Reflective helmet stickers](https://www.amazon.com/VFLUO-STANDARDTM-reflective-Motorcycle-TechnologyTM/dp/B019CF0440?th=1)
-[Motorcycle low boots size 11 black or gray $47.99](https://www.amazon.com/Bruno-Engle-01-Motorcycle-Combat-Oxford/dp/B071XDPKG7)
-[Motprcycle shoes size 11 $89](https://www.amazon.com/IRON-JIAS-Motorcycle-Streetbike-Accessories/dp/B074WYCTRW/?th=1)
+[Reflective helmet stickers](https://www.amazon.com/VFLUO-STANDARDTM-reflective-Motorcycle-TechnologyTM/dp/B019CF0440?th=1)  
+[Motorcycle low boots size 11 black or gray $47.99](https://www.amazon.com/Bruno-Engle-01-Motorcycle-Combat-Oxford/dp/B071XDPKG7)  
+[Motprcycle shoes size 11 $89](https://www.amazon.com/IRON-JIAS-Motorcycle-Streetbike-Accessories/dp/B074WYCTRW/?th=1)  
 
 # Home Depot
 [Bucket Head shop vac $29.97](https://www.homedepot.com/p/Bucket-Head-5-Gal-1-75-Peak-HP-Wet-Dry-Shop-Vacuum-Powerhead-with-Filter-Bag-and-Hose-compatible-with-5-Gal-Homer-Bucket-BH0100/202017218#overlay)  
